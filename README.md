@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @666-NEX Or Benjamin
+- 👀 I’m interested in Programming and video games
+- 🌱 I’m currently learning Russian
+- 📫 Send me friend request on Discord as nexisback_69779
